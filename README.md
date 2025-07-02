@@ -18,4 +18,4 @@
 - 💻 GitHub: (https://github.com/diana-angeline33)
 
 ---
-⚒️ In a constant state of growth :)
+⚒️ In a constant state of growth >:)
